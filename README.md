@@ -1,0 +1,1 @@
+Uploading code here for project on queer theory, machine learning, and poetics. 
